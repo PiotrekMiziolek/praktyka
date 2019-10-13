@@ -1,0 +1,2 @@
+# praktyka
+praca zaliczeniowa / szkolenie
